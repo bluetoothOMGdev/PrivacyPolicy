@@ -1,1 +1,1 @@
-# bluetoothOMGPrivacyPolicy.github.io
+bluetoothOMG Privacy Policy
